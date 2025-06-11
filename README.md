@@ -18,8 +18,8 @@
 - 🤝 Open to collaborations on **frontend projects**, **college-level tech events**, or **internships**
 
 ## 💬 Let's Connect
-- 📫 Email: dipali.ingole9960@gmail.com
-- 🌐 LinkedIn: [linkedin.com/in/dipali-ingole](https://www.linkedin.com/in/dipali-ingole)
+- 📫 Email: idipali593@gmail.com 
+- 🌐 LinkedIn: [linkedin.com/in/dipali-ingole](https://www.linkedin.com/in/dipali-ingole-9b929b342?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 🧠 Portfolio (coming soon...)
 
 ## 😄 Pronouns
